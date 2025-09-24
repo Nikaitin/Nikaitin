@@ -9,4 +9,3 @@ I'm Nikaitin, a beginner in coding and stuffs and...
 - 📫 How to reach me: idk
 - 😄 Pronouns: the/goat
 - ⚡ Fun fact: Female hyenas have a pseudopenis
---> Peace
